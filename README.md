@@ -2,7 +2,7 @@
 ### Меня зовут Элеонора Армизонова и я осваюиваю профессию QA Engeneer :blush:
 ##
 
-![image](https://github.com/user-attachments/assets/2cdfda4a-9ddf-46ee-b776-f5f38be41d75) [Мой Телеграмм](https://t.me/ArmNora)
+![image](https://github.com/user-attachments/assets/2cdfda4a-9ddf-46ee-b776-f5f38be41d75) [Мой Телеграм](https://t.me/ArmNora)
 
 ##
 
