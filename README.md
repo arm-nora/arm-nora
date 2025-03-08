@@ -5,4 +5,4 @@
 ![image](https://github.com/user-attachments/assets/20c9725d-bd4b-4500-aa1d-4cdf32591e32) [В процессе :blush:](www.linkedin.com/in/элеонора-армизонова-825263326)
 ##
 
-![image](https://github.com/user-attachments/assets/be77d2c2-fff8-45db-bbc9-4a505d648b38) [Мое резюме](https://drive.google.com/file/d/1QFBIOQwuXc1-678uDVy1E800MMIz66Pb/view?usp=sharing)
+![image](https://github.com/user-attachments/assets/be77d2c2-fff8-45db-bbc9-4a505d648b38) [Мое резюме](https://drive.google.com/drive/folders/1ORU1-I38PYxiBXthFkIou4ZVA_6ywBuM))
